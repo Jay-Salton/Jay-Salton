@@ -2,4 +2,4 @@
 - 👀 I’m interested in nature, art & technology
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on decentralised virutal worlds
-- 📫 How to reach me: jay.salton@pm.me
+- 📫 How to reach me: hello@jaysalton.com
